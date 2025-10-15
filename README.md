@@ -1,2 +1,2 @@
 # Labb-1
-Ni kan läsa och gärna ge feedback !  
+Ni kan läsa och gärna ge feedback !! 
